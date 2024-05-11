@@ -29,7 +29,7 @@
 
 ![Veritabanı](https://r.resimlink.com/v-9xIVQw.png)
 
-### Teşekkürler! 🚀
+## Teşekkürler! 🚀
 
 ### Geribildirim
 #### Herhangi bir geri bildiriminiz varsa,lütfen zenginmelih060@gmail.com adresinden bana ulaşabilirsiniz.
